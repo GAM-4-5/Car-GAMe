@@ -4,7 +4,7 @@
 Nakon ženinog poziva sjedate u svoj crveni Ferrari te kršite sve moguće prometne propise kako bi stigli kući na vrijeme?
 
 Ako ste se pronašli u početnih nekoliko pitanja, onda je ova igrica upravo stvorena za vas!
-Udobno se smjestite, upalite svoje računalo ih 90-ih godina prošlog stoljeća, te ga nakon nekoliko puta neuspješnog paljenja nježno potapšajte po kućištu kako bi njegov rad bio čak do nekoliko puta efikasniji!
+Udobno se smjestite, upalite svoje računalo iz 90-ih godina prošlog stoljeća, te ga nakon nekoliko puta neuspješnog paljenja nježno potapšajte po kućištu kako bi njegove preformanse bile čak i do nekoliko puta efikasnije!
 Naposlijetku se prepustite igri, koja će vas na najbolji mogući način istrenirati te pripremiti vaše reflekse i reakcije, kako bi vaše sljedeće putovanje kući bilo što brže i efikasnije.
 
 Cilj je igrice sa svojim automobilom putovati cestom te izbjegavati sve prepreke na koje putem nailazite.
