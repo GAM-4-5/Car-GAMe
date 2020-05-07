@@ -9,7 +9,7 @@ Naposlijetku se prepustite igri, koja će vas na najbolji mogući način istreni
 
 Cilj je igrice sa svojim automobilom putovati cestom te izbjegavati sve prepreke na koje putem nailazite.
 Duljim igranjem, igrica postaje sve teža te sve brže i brže nailazite na prepreke.
-Nabasanjem na prepreke (automobili i ulje na kolniku), oduzmaju vam se životi, te se nakon sva tri izgubljena života igrica završava i prikazuje vam se vaš osobni score.
+Nabasanjem na prepreke (automobili i ulje na kolniku), oduzmaju vam se životi, kojih, protivno teoriji Dražena Zečića, imate čak tri! Nakon što izgubite sva tri života, igrica se završava i prikazuje vam se vaš osobni score.
 
  Okušajte se u novoj i uzbudljivoj avanturi, prepunoj adrenalina koja će vam pružiti otpuštanje hormona serotonina i dopamina, a ponekad vas čak i navesti na izgovaranje riječi zabranjenih bontonom. Upalite igricu i uživajte! :)
 
